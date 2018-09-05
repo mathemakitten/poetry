@@ -30,7 +30,7 @@ The **Milky Way** itself will become undone, a changed galaxy
 
 As celestial chaos ensues; *they thought this would never happen again*
 
-All eyes are on **you and me** as we drop a match on the great unknown
+All eyes are on **you and I** as we drop a match on the great unknown
 
 **III.**
 
