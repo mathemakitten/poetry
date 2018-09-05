@@ -78,7 +78,7 @@ As you make me forget the reasons why—**irrational**
 
 One day the world will look back upon this and they will (*under*)stand
 
-They will say, “**Remember** those two, the stars that *chased the day in\**to night***,
+They will say, “**Remember** those two, the stars that *chased the day in to night*
 
 And then, in the face of danger, *laughed* at the unknown?”
 
