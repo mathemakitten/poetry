@@ -1,4 +1,4 @@
-### [Fixed Stars Do Not Exist](http://helen-java.blogspot.com/2011/10/fixed-stars-do-not-exist.html)
+**Fixed Stars Do Not Exist**
 
 *a sestina*
 
