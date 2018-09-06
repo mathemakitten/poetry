@@ -6,6 +6,8 @@
 
 
 
+
+
 "What city are we in?" 
 
 I dare to ask the boy whom I have never met, 
@@ -15,6 +17,8 @@ whose posture is as straight as the loaded gun
 that clinks—hard—against his skin, 
 
 which is darker than the desert night itself.  
+
+
 
 
 
@@ -32,6 +36,8 @@ and as forceful as the ropes around my wrists.
 
 
 
+
+
 He turns to me, all ebony skin in sharp contrast against 
 
 the undeniable crimson imprinted on hands that are worn with scars. 
@@ -41,6 +47,8 @@ Tawny eyes betray his startling youth, and a fire lit by human ashes.
 They carry the hurt of the ages, a perfect mirror of this wasteland— 
 
 as well as a regret so fiercely hot that it almost burns through me.  
+
+
 
 
 
@@ -58,6 +66,8 @@ drops stain the sand, finding their way back to Mother Earth.
 
 
 
+
+
 His voice is a gunshot in the dark as he whispers in broken Arabic, 
 
 "Ukhayyatun,"—*little sister*—"you run, and never look back." 
@@ -67,6 +77,8 @@ Strong hands shove me into the unknown. I am off, a firework
 into the darkness, aligning myself with the land mapped onto my heart, 
 
 looking only to Circinus and the call of the antelope to guide my way.  
+
+
 
 
 
