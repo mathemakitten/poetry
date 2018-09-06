@@ -1,7 +1,7 @@
-[Untitled]
+**i'd do the stars with you anytime**.
 
-*a poetry collection*
+*a collection of poetry*
 
 
 
-I'm pretty sure that using GitHub to version control creative writing is actually brilliant. More soon.
+forever a work-in-progress
