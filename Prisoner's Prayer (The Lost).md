@@ -4,7 +4,7 @@
 
 *Alfred Poynt Poetry Award, Judge's Choice* - *Occasus Literary Journal*
 
-<br/><br/> 
+<br/>
 
 "What city are we in?" 
 
@@ -16,9 +16,7 @@ that clinks—hard—against his skin,
 
 which is darker than the desert night itself.  
 
-<br/><br/>
-
-
+<br/>
 
 He walks in step with me, hard military boots echoing 
 
@@ -32,9 +30,7 @@ and I realize for the first time that silence is strong enough to strangle,
 
 and as forceful as the ropes around my wrists.  
 
-<br/><br/>
-
-
+<br/>
 
 He turns to me, all ebony skin in sharp contrast against 
 
@@ -46,9 +42,7 @@ They carry the hurt of the ages, a perfect mirror of this wasteland—
 
 as well as a regret so fiercely hot that it almost burns through me.  
 
-<br/><br/>
-
-
+<br/>
 
 A moment—his Commander's back is turned toward the horizon; 
 
@@ -62,9 +56,7 @@ as freely as the Ouémé River running in the springtime—
 
 drops stain the sand, finding their way back to Mother Earth.  
 
-<br/><br/>
-
-
+<br/>
 
 His voice is a gunshot in the dark as he whispers in broken Arabic, 
 
@@ -76,9 +68,7 @@ into the darkness, aligning myself with the land mapped onto my heart,
 
 looking only to Circinus and the call of the antelope to guide my way.  
 
-<br/><br/>
-
-
+<br/>
 
 As I flee into the Nigerian midnight, to safety— 
 
