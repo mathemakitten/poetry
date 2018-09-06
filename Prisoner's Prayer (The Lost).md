@@ -6,8 +6,6 @@
 
 
 
-
-
 "What city are we in?" 
 
 I dare to ask the boy whom I have never met, 
@@ -16,9 +14,7 @@ whose posture is as straight as the loaded gun
 
 that clinks—hard—against his skin, 
 
-which is darker than the desert night itself.  
-
-
+which is darker than the desert night itself.  \
 
 
 
@@ -32,9 +28,7 @@ The fear of 235 of my sisters ricochets throughout the night,
 
 and I realize for the first time that silence is strong enough to strangle, 
 
-and as forceful as the ropes around my wrists.  
-
-
+and as forceful as the ropes around my wrists.  \
 
 
 
@@ -46,9 +40,7 @@ Tawny eyes betray his startling youth, and a fire lit by human ashes.
 
 They carry the hurt of the ages, a perfect mirror of this wasteland— 
 
-as well as a regret so fiercely hot that it almost burns through me.  
-
-
+as well as a regret so fiercely hot that it almost burns through me.  \
 
 
 
@@ -62,9 +54,7 @@ as I feel my lifeblood begin to slip from my veins,
 
 as freely as the Ouémé River running in the springtime— 
 
-drops stain the sand, finding their way back to Mother Earth.  
-
-
+drops stain the sand, finding their way back to Mother Earth.  \
 
 
 
@@ -76,9 +66,7 @@ Strong hands shove me into the unknown. I am off, a firework
 
 into the darkness, aligning myself with the land mapped onto my heart, 
 
-looking only to Circinus and the call of the antelope to guide my way.  
-
-
+looking only to Circinus and the call of the antelope to guide my way.  \
 
 
 
@@ -92,4 +80,4 @@ whom I hope to never cross paths with again in this wretched life.
 
 I send up a prayer to God for mercy upon his soul 
 
-as I realize that I am not the only one who needs to be saved.   
+as I realize that I am not the only one who needs to be saved.   \
