@@ -11,17 +11,18 @@
 <br/>
 
 **I. San Juan**
+
 a seven-day adventure across Caribbean harbours 
 
 first-class wealth colliding with souls plucked from families across the third world
 
 a modern-day study where skin colour demarcates servants from guests 
 
-she and i were both 21 years old and on the verge of the rest of our lives
+she and I were both 21 years old and on the verge of the rest of our lives
 
-"this is my first grown up job. i'm so far from home," she said with such pride
+"this is my first grown up job. I'm so far from home," she said with such pride
 
-that i could feel my heart shatter beneath the light of her flawless smile 
+that I could feel my heart shatter beneath the light of her flawless smile 
 
 <br/>
 
@@ -67,9 +68,9 @@ to find a reflection of home; in neon signs, dim streetlights, and a tram line
 
 if we have finitely many midnights to spend on this earth then
 
-i'm thankful to stand in this moment, with you, as strangers becoming friends
+I'm thankful to stand in this moment, with you, as strangers becoming friends
 
-on the other side of an ocean for possibly the first time and the last time in our only lives
+on the other side of an ocean, for possibly the first time and the last time in our only lives
 
 <br/>
 
@@ -81,7 +82,7 @@ here we are, in the happiest country in the world
 
 a reputation hiding untold stories, lived only by those on the perimeter
 
-i dare you to walk the streets of multiple colours to find the imperfect truth
+I dare you to walk the streets of multiple colours to find the imperfect truth
 
 isn't it telling that Nørrebro is mentioned for its multiculturalism
 
@@ -101,4 +102,4 @@ for all of its infinite imperfections, this is where storytellers and creators g
 
 to echo louder the stories of the least of these until they become history
 
-and me? i only count myself lucky to be part of *this* *rising glory*
+and me? iI only count myself lucky to be part of *this* *rising glory*
