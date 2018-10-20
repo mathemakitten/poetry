@@ -38,7 +38,7 @@ and amongst unseen people who have fallen between the cracks
 
 it seems that the place which is always building the future
 
-has forgotten the people which built the city from the ground up
+has forgotten the people which built this place from the ground up
 
 <br/>
 
