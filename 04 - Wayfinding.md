@@ -102,4 +102,4 @@ for all of its infinite imperfections, this is where storytellers and creators g
 
 to echo louder the stories of the least of these until they become history
 
-and me? iI only count myself lucky to be part of *this* *rising glory*
+and me? I only count myself lucky to be part of this rising glory
